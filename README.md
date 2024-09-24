@@ -1,1 +1,1 @@
-# Quantum-Enchantments
+# Quantum-Enchantments Classic
